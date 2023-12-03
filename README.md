@@ -5,7 +5,8 @@
            - c+h -
 
     - roblox user :: littlemiss_jejemon -
-      🐔 -- safe server -- 🐔
+
+      - chicken lover 🐔 🤭 -
       
   - i'm from the Philippines -
  AYUAUAUXHA
